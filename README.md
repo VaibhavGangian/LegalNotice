@@ -1,1 +1,1 @@
-https://vaibhavgangian.github.io/LegalNotice/
+https://vaibhavgangian.github.io/TheLegalNotice/
